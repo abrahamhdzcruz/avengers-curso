@@ -2,4 +2,4 @@
 
 - Dr. Room
 - Red Skull
-- Doctor Herrera
+- Capitan América
